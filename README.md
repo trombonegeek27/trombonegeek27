@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @trombonegeek27
 - 👀 I’m interested in ... coding 
 - 🌱 I’m currently learning ... robotics at OHS 
-- 💞️ I’m looking to collaborate on ... nothign at the moment 
+- 💞️ I’m looking to collaborate on ... nothing at the moment 
 - 📫 How to reach me ... email  Email reid.akers@icloud.com
 - My Pronouns are He/Him 
 
